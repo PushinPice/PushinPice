@@ -1,0 +1,1 @@
+Deepest Dwellers merchant in Djinn's Tear said he would pay us with money or favors to figure out why the well is so dry
