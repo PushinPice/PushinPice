@@ -1,6 +1,7 @@
 Layers and Layers
 ### Icon: The Spider Queen
 ![[Pasted image 20260514230917.png]]
+
 Unknowable levels of cave systems lie below the world's surface. Very few mortals know how widespread these underground tunnels spread...but their influence is present in just about every surface-level landscape. The Spider Queen, a lady of secrecy and expansive plots, spins a web of Underdark denizens into doing her bidding. Dark Drow, brutish Duergar, and many more humanoids count themselves among her influence. They seem to be inserting that influence onto the surface more and more. If the Spider Queen has such an intricate web of control over the Underdark, what could she possibly want by spreading to the Icons Above?
 
 **Quote:** "Silk is strong and beautiful, like our lady. Yet we feel secluded. Unrecognized. A web with no visitors makes the spider starve. We'll get our recognition...we're hungry for it."

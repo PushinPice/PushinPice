@@ -1,6 +1,7 @@
 Progress by Proxy
 ### Icon: The Arcane Loremaster
 ![[Pasted image 20260514231945.png]]
+
 Science, secrets, and expungement of gods...that is the way of Fien. The 13 divine entities that once ruled supreme have been relegated to irrelevancy thanks to the Loremaster. This doctrine has been replaced by absolute faith in science; a faith that united Fien under a single banner. With that continent known and controlled, the Loremaster's attention turned to the land across the sea. Perhaps this place can drive new inventions and adventure! Yet a smaller sect of Godly folk remains a thorn: Six Saints in particular. The Sainthood has spread rumors far and wide, stopping Fien's science from taking a strong foothold with most Icons. Except for the Baron! His goals and personality align well with the Loremaster's taste. Fien has its work cut out to overcome the natural distaste from the Sainthood to drive science to its peak.
 
 **Quote:** "I conquered our lands with my wits and magical secrets, freeing us from bowing to barbaric gods. Your continent would benefit so much from our values. Yet I fear forces beyond the world may grind that progress to a halt."

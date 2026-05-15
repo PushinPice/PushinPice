@@ -1,6 +1,7 @@
 Secrets and Slavery
 ### Icon: The All-Seer
 ![[Pasted image 20260514231413.png]]
+
 There is not a single person who can understate this fact: the Fiefdom is the WORST place alive for any humanoid to live. Other regions may have harsher elements, but the Fiefdom's focus on slavery means the environment is changed in a different way. People are taken to their floating islands and never seen again...or if they are, they are entirely changed personality-wise. People are plucked from the land below, the seas to the side, and even the skies above. Nobody is spared. Everyone wonders the same things: how are they using these slaves, and who is this All-Seer behind their kidnappings? Answers are minimal, which is a problem as the Fiefdom targets more noteworthy humanoids for capture.
 
 **Quote:** "Eye for an eye eh? You're unlucky: I have many eyes to spare. I see so much. All my workers toiling away. All for me. It gives me joy to see this present...almost as much as the future I envision."

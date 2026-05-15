@@ -1,6 +1,7 @@
 Head in the Clouds
 ### Icon: Baron Nasim V
 ![[Pasted image 20260514230348.png]]
+
 The Barony controls the single largest collective territory on this continent. It's sad to say that its mostly barren desert...but that doesn't stop the Barony from thriving. Terrestrial oases,
 underground water sources, and the River Phiaro have allowed for the country to thrive. None more so than the capital city of Minzar. Its grand heights are only matched by the efficient chutes that make it the most bustling centralized city on the continent. Even with all this to boast of, the Baron seems bored. He'd much rather keep his eyes to the stars than glued to the ground. Everyone wonders what he longs for amidst that night sky.
 

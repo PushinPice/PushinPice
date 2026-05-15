@@ -1,6 +1,7 @@
 An Unlikely Alliance
 ### Icon: The Tribal Trifecta
 ![[Pasted image 20260514232542.png]]
+
 Three great leaders keep the Radiant Commune united under its vibrant landscape. No other country can lay claim to a mix of volcanic mountains, beautiful tropics, and cultural architecture across the coast. Three main races of high elves, mountain dwarves, and orcs reflect this diversity. For a long time, this land was harmonious. Sure, there were small scuffles here and there! But nothing that was a long-lasting threat...until the Conqueror came. Statues of old heroes and temples dedicated to natural beauty crumpled in the face of this ravaging lunatic. It was disaster that the fragmented societies couldn't oppose. A quarter-century has passed since they united: all thanks to a major deal made with The Grand Plutocracy. The Plutocracy provides rare earth materials while the Commune's fertile soil gets them all the food they need to feed a country. How do they take advantage of this? By pumping all their efforts into crafting rare hardware or natural magic of course! Their goal is to make major moves against the Conqueror's perceived weak points...but the question is whether or not this union is strong enough to strike.
 
 **Quote:** "Races long divided now interlock arms against a common enemy. So much strength in a single union! If only we could decide on a direction. It's hard to succeed when we all want different things..."

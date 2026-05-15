@@ -1,6 +1,7 @@
 Controlling and Conniving
 ### Icon: The Concordist
 ![[Pasted image 20260514225954.png]]
+
 A faction that works in the shadows, the Creed works tirelessly day and night to enlist people in their agenda. What agenda is that? Signing their lives away for one deed or another! There's a fiendish air about this cult. They're always scheming finding the best time to pitch a deal to you at your lowest circumstances. And it's always such creepy blabbering "Blah 1 give you power blah give me your soul". In some ways, they seem crazy and harmless. But you really have to wonder: how high does their conspiracy climb?
 
 **Quote:** "Why put in all that work... with a swish of a pen, you can have all you've ever dreamed off All it takes is a soul"

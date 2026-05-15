@@ -1,6 +1,7 @@
 Divine and Dwindling
 ### Icon: The Six Saints
 ![[Pasted image 20260514232813.png]]
+
 Six fervent saints are the only remaining remnants of the old pantheon. Fien has expunged divine worship from their continent, pushing the Sainthood to wrestle with other icons for dominance. They differ in the gods and methods they worship...but unite under the goal of bringing godhood back into relevance. It's been a subtle infiltration. Each Saint has pushed their way to influence other icons, with many adopting their practices over the past century. All except the Baron. His close ties to Fien's Foreigners have made his people a tough nut to crack! But he isn't outright hostile; unlike the Foreigners who show merciless hostility at every encounter. Their fight for the dominance of science has carried over to this new continent! Everyone wonders how this conflict will affect the icons of the world. So abstract, so detached from more worldly concerns! Some believe that the Sainthood will help organize a divine society in the same way Fien has with its technology. Others see aspects, like their close relationship with the Creed, as omens of future disaster by messing with stones that shouldn't be uncovered.
 
 **Quote:** "Gods of Secrets, of War, and many more. They once answered our prayers with power. Now? Silence. When the torch goes out, who protects us from the dark that closes in? I say the Sainthood shall bring light!"

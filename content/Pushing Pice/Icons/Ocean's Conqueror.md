@@ -1,6 +1,7 @@
 Living to Crush
 ### Icon: Ocean's Conqueror
 ![[Pasted image 20260514232322.png]]
+
 An icon, a beast, and a brute all rolled into one. Smart in the ways of war, and mystical in his connection to the ocean. He IS the Ocean's Conqueror. He and his disciples terrorize the Western shores of the continent, doing the most damage to the Radiant Commune's daily life. They raid and set off into the ocean's waves after their razing is complete. If it were only his disciples, then resistance would be manageable. Most of their basic encampments have been pushed back by organized forces. It get tricky when the Conqueror arrives. He is a hurricane on the battlefield. When he fights, you LOSE. The question everyone asks is simple: why?! His targets do not seem to have a clear pattern. Keeping his wave of destruction at bay will involve solving this puzzle.
 
 **Quote:** "I ain't playin'. You have exactly what I need, and you know exactly the kind of carnage that comes with my presence. I'll give you 12 hours to waive the white flag."

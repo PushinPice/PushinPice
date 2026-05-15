@@ -1,6 +1,7 @@
 The Chase is Decadent
 ### Icon: Green Thumb
 ![[Pasted image 20260514233544.png]]
+
 MONEY. Rare gems. Crystals and gold. The more you have, the better life gets in the Grand Plutocracy. It's a numbers game! Those at the top dominate those below them, where cash is king and makes all law. Merchants from here travel the world to tout their rare gemstones. In return? They bring back necessities, like food and raw materials, to keep this endless money-machine moving. The Commune is their favorite customer for a reason! It's said that this partnership was forged by Ushi's most idolized merchant: the Icon Green Thumb. Rarely spotted, yet unbelievably impactful. That's how Green Thumb operates. While the remaining merchants scheme the surface. Most merchants abide by the codes of their deals in the Twin Citadels within Ushi...Green Thumb bides his time for bigger fish to fry. But despite his immense reputation, even the most rabid supporters of the Plutocracy have doubts. Clear competition, like the Deep Dwellers, place the wealth and reputation of Ushi at risk. They need a new, shiny, deal with an Icon...will Green Thumb live up to his legendary sales skillset?
 
 **Quote:** "The flow of gold is limited...and more hands add to the pile every day. Nobody wants to make labor their life's love. We want GLAMOUR. We want GLORY. We want everything Green Thumb has to offer us."

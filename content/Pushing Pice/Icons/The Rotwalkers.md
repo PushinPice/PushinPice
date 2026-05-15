@@ -1,6 +1,7 @@
 Isolated Unlife
 ### Icon: Maker of Dust
 ![[Pasted image 20260514233032.png]]
+
 Dead Man Walking. That's the easiest way to describe the Rotwalkers. They are by far the most isolated of the icons, making them also the most misunderstood. Other Icons have an understandable fear of necromancy. Everyone fears death...and to have it mirrored in the form of clacking skeletons or zombified husks shoves that fear in everyone's face. Nobody knows this better than the Coldest Colonies. Frequent encounters with undead wandering the frozen north has convinced them of two important revelations. Firstly: the undead must have a stronghold amidst the snows. Secondly: their behavior patterns display a level of intelligence. All signs point towards the seemingly "mindless" undead being led by an organized leader. His true name is unknown, but his rumored feats of necromancy have earned him his title: Maker of Dust. As with all undead, he must have been a person in life! The question remains: does he carry the same goals as his living mind once did? Or has timeless existence changed his vision to achieve stranger heights? The only clear answer is that death is his tool of choice in this journey.
 
 **Quote:** "Life? Life is fragile, fleeting, and so damn restricted. Death is formless...timeless...and gives a chance beyond life. Everyone who wants a chance at it should have it. There is no compromise between life and death."

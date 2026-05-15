@@ -1,6 +1,7 @@
 Kindled by Creation
 ### Icon: Creator Quartet
 ![[Pasted image 20260514231217.png]]
+
 All elementals bow to the might of the Quartet. Earth, Fire, Water, and Air...each is led by one of the quartet that spreads their elements across the land. Being born of them means they share personality traits. Fire is passion, air is flaky, and so on. Thanks to the consistency of elementals, humanoids have been able to maintain strong relationships over the centuries. But as the world is built by them, they don't always agree. The Quartet can pull in different directions, seeing stronger presence of one element more than another over time. However, a threat to humanoids is an unacceptable prospect for the Quartet. They can align surprisingly fast if they learn the societies they helped build are in danger. The danger lies in how out of control nature can get when driven to wrath!
 
 **Quote:** "We're builders at the end of the day. Songs of fire, words of earth, lyrics we used to raise mountains and rivers. We can accomplish so much when we sing in harmony..."

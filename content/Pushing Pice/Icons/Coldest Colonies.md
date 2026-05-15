@@ -1,6 +1,7 @@
 Independent and Growing
 ### Icon: Governor Talbot
 ![[Pasted image 20260514225743.png]]
+
 Governor Talbot, a Tiefling with snow- white hair and even crisper formal robes, leads this faction on the brink of wilderness. 75 years ago, they were colonies of the Diamond Dynasty of Fien. Guerilla warfare and the aid of Frost Giants led to a new state of Independence for these colonies. They've maintained their land ever since...but the time is nigh to expand territory! Will you help the Colonies in their adventurous endeavor into the cold wilderness? Or will you work against them and aid their enemies?
 
 **Quote:** "The world is a cold place, and that's how we like it, Ice preserves...it's meant to last eons. Other forces interfere with this fact. They'll have to pry it from our cold, living, hands."
